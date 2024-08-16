@@ -1,1 +1,1 @@
-# dekopinda-kota-lubuk-linggu
+# dekopinda-karanganyar
